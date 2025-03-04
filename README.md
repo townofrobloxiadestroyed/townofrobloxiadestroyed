@@ -11,8 +11,8 @@ k_kila ur my lifesavior 🙏
 
 ![](https://files.catbox.moe/fjqjtq.png) ![](https://files.catbox.moe/vinodz.png) ![](https://files.catbox.moe/j4rb9h.png) ![](https://files.catbox.moe/2rjj13.png) ![](https://files.catbox.moe/xufek7.png) ![](https://files.catbox.moe/84h25o.png) ![](https://files.catbox.moe/jc3xjq.png) ![](https://files.catbox.moe/wfgcsf.png) ![](https://files.catbox.moe/kcw0gj.png) ![](https://files.catbox.moe/glc7da.png) ![](https://files.catbox.moe/jjek38.png) ![](https://files.catbox.moe/6zw1bn.png) ![](https://files.catbox.moe/u4irwh.png) ![](https://files.catbox.moe/gnn0wb.png) ![](https://files.catbox.moe/a15g9l.png) ![](https://files.catbox.moe/1uyv8q.png) ![](https://files.catbox.moe/tkr8nf.png) ![](https://files.catbox.moe/drbpxb.png) ![](https://files.catbox.moe/5knu82.png) ![](https://files.catbox.moe/thuqg7.png) ![](https://files.catbox.moe/o4b8wr.png) ![](https://files.catbox.moe/mhz11b.png) ![](https://files.catbox.moe/eltud4.png) ![](https://files.catbox.moe/k1f0jp.png) ![](https://files.catbox.moe/2a41e7.png) ![](https://files.catbox.moe/t1g48f.png) ![](https://files.catbox.moe/awwz83.png)
 
-# Sprites
-## mainrole sprites
+# Mainrole Sprites
+
 
 > Noob
 
@@ -23,4 +23,9 @@ k_kila ur my lifesavior 🙏
 ![](https://files.catbox.moe/7app9w.png) ![](https://files.catbox.moe/w7fho9.png) ![](https://files.catbox.moe/ddlaiw.gif) ![](https://files.catbox.moe/3a8abj.png) ![](https://files.catbox.moe/nfqqjj.png) ![](https://files.catbox.moe/dbkja7.png) ![](https://files.catbox.moe/onrkny.png) ![](https://files.catbox.moe/ws34yo.gif) ![](https://files.catbox.moe/fee5zw.png) ![](https://files.catbox.moe/d3p3ix.png) ![](https://files.catbox.moe/9dv55b.gif) ![](https://files.catbox.moe/zv37lg.png) ![](https://files.catbox.moe/er9uem.png) ![](https://files.catbox.moe/ggevci.png) 
 
 > Builderman
+
 ![](https://files.catbox.moe/2q6kje.png) ![](https://files.catbox.moe/b9ob8v.png) ![](https://files.catbox.moe/xqncur.png) ![](https://files.catbox.moe/gf3jxl.png) ![](https://files.catbox.moe/0o3kck.png) ![](https://files.catbox.moe/od9tk9.png) ![](https://files.catbox.moe/ova8ew.gif) ![](https://files.catbox.moe/h1g5qd.png) ![](https://files.catbox.moe/sqmec9.png) ![](https://files.catbox.moe/1hwa8w.png) ![](https://files.catbox.moe/499xug.gif) ![](https://files.catbox.moe/hcdan8.png) ![](https://files.catbox.moe/h224xr.png) ![](https://files.catbox.moe/gsy4i7.png)
+
+> Brighteyes
+
+![](https://files.catbox.moe/dkev15.png) ![](https://files.catbox.moe/5e5v8g.png)
