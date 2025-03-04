@@ -29,3 +29,8 @@ k_kila ur my lifesavior 🙏
 > Brighteyes
 
 ![](https://files.catbox.moe/dkev15.png) ![](https://files.catbox.moe/5e5v8g.png)
+
+
+# Official Banners, Pfps, Logos
+
+![](https://files.catbox.moe/vcivr2.png) ![](https://files.catbox.moe/2vc2gw.png) ![](https://files.catbox.moe/snxfsl.png) ![](https://files.catbox.moe/t0hcwb.png) ![](https://files.catbox.moe/r0puds.png) ![](https://files.catbox.moe/yni0e1.png) ![](https://files.catbox.moe/8mjtku.png) ![](https://files.catbox.moe/59sjdc.gif) ![](https://files.catbox.moe/4w6jmz.png)
