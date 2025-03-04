@@ -1,4 +1,5 @@
 this is just a lost media archive on one of my big hyperfixations
+k_kila ur my lifesavior 🙏
 
 ## my favorite parts of the comic >
 
