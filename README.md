@@ -34,3 +34,13 @@ k_kila ur my lifesavior 🙏
 # Official Banners, Pfps, Logos
 
 ![](https://files.catbox.moe/vcivr2.png) ![](https://files.catbox.moe/2vc2gw.png) ![](https://files.catbox.moe/snxfsl.png) ![](https://files.catbox.moe/t0hcwb.png) ![](https://files.catbox.moe/r0puds.png) ![](https://files.catbox.moe/yni0e1.png) ![](https://files.catbox.moe/8mjtku.png) ![](https://files.catbox.moe/59sjdc.gif) ![](https://files.catbox.moe/4w6jmz.png)
+
+# Videos from the comic
+
+https://github.com/user-attachments/assets/448df96e-3163-4e91-b610-e7131680a42a
+
+https://github.com/user-attachments/assets/4ae308db-ae9c-4010-a6ba-364861a9d43c
+
+
+
+
